@@ -981,6 +981,7 @@
 * [LNWNCentral](https://lnwncentral.wordpress.com/)
 * [NovelGreat](https://novelgreat.net/)
 * [Octiopii](https://octopii.co/)
+* [Panda Novel](https://www.panda-novel.com/top)
 * [LightNovelPDF](https://lightnovelpdf.com/)
 * [AsianHobbyist](https://www.asianhobbyist.com/)
 * [Read Light Novel](https://www.readlightnovel.me/)
